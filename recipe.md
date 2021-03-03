@@ -1,4 +1,20 @@
-# INSTRUCTIONS
+# HEALTHIER CARAMEL SQUARES
+
+## INGREDIENTS
+
+- FOR THE SHORTBREAD BASE:
+- 200 g ground almond
+- 100 ml agave syrup
+- 60 g coconut oil
+- FOR THE CARAMEL LAYER:
+- 300 g pitted dates
+- 150 g almond butter
+- 1 tbsp vanilla extract
+- 1 tbsp coconut oil
+- 6 tbsp water
+- 250 g dark chocolate for top layer
+
+## INSTRUCTIONS
 
 1. INSTRUCTIONS
 2. Blend your almond flour in a food processor to a fine texture
